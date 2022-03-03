@@ -1,1 +1,0 @@
-![Woah!](https://github.com/richardred/richardred/blob/main/screenshot-4.png)
