@@ -1,1 +1,1 @@
-![Woah!](https://github.com/richardred/richardred/blob/main/screenshot-4.png)
+![Woah!](https://github.com/richardred/richardred/blob/main/screenshot-3.png)
